@@ -11,7 +11,7 @@
     <img src="https://img.shields.io/badge/IG-e63946?style=for-the-badge&labelColor=ffffff&color=ffffff" alt="IG">
   </a>
   <a href="https://www.tiktok.com/@__.8thg6">
-    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=ff1460&color=ff1460&logoColor=ff1460" alt="TT">
+    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=FFEE8BFF&color=FFEE8BFF&logoColor=FFEE8BFF" alt="TT">
   </a> 
   <a href="https://www.facebook.com/ehanhiu/?locale=vi_VN">
     <img src="https://img.shields.io/badge/FB-715b6e?style=for-the-badge&labelColor=715b6e&color=715b6e&logoColor=715b6e" alt="FB">
