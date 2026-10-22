@@ -19,7 +19,7 @@
  
     
     
-⠀⠀  ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ㅤ![image alt](https://i.pinimg.com/originals/98/b8/d1/98b8d11f205450e9f9aa3b6a56ab1790.gif)
+⠀⠀  ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ㅤ![image alt](https://i.pinimg.com/originals/ec/88/d8/ec88d8d01e050b8d127c4bc4d3ccbbd5.gif)
 
 
  ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&pause=1000&color=D2BECE&center=true&width=435&lines=my+love%3C3;sasuke+uchiha)](https://git.io/typing-svg)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
