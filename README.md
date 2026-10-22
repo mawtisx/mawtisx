@@ -1,7 +1,7 @@
 ![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=ff1460&label=⸝⸝)
  ⠀ ⠀ ⠀
  
- 
+ ưho do u think you are that i should even mention you? haha
  ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
     ㅤㅤ<p align="center">
   <a href="https://www.instagram.com/hongahy/">
