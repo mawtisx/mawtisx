@@ -1,5 +1,4 @@
-![image alt](https://komarev.com/ghpvc/?username=mawtisx&style=plastic&color=fffe9d.label=⸝⸝)
- ⠀ ⠀ ⠀
+
 
  
  Chúng ta hãy tránh việc công kích danh dự cá nhân hay cố gắng bôi nhọ thanh danh của nhau. Và xin đừng tự huyễn hoặc bản thân rằng tôi luôn nhắc đến bạn trong các cuộc trò chuyện của mình—thực tế không phải vậy. Đã đến lúc buông bỏ quá khứ; hãy coi chương đó như một cuốn sách đã khép lại—chỉ còn là ký ức mà thôi. Chúng ta không còn bất kỳ mối liên hệ nào với nhau nữa, nên hãy để mọi chuyện qua đi. Đừng nuôi dưỡng những suy nghĩ nhỏ nhen, ác ý khi cho rằng tôi đang bàn tán, nói xấu hay tìm cách hủy hoại danh tiếng của bạn. Sự thật là chẳng ai nhắc đến bạn trong các cuộc trò chuyện cả. Tốt hơn hết là hãy giữ quá khứ cho riêng mình thay vì cứ khơi lại từng chi tiết—đặc biệt là những điều tôi từng tâm sự với bạn trong sự tin tưởng. Đừng để tôi biết rằng bạn đang đóng vai nạn nhân hay rêu rao rằng thanh danh của mình bị tổn hại, nhất là khi chúng ta đã không còn thân thiết. Lần cuối trò chuyện, chính bạn đã nói rằng sẽ không đi nói xấu tôi—liệu bạn có thể giữ đúng lời hứa đó không? Tôi thực sự hy vọng bạn là người biết giữ lời và sẽ không tự biến mình thành "nạn nhân" trước mặt bạn bè của chính bạn.
