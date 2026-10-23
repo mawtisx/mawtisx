@@ -1,4 +1,4 @@
-![image alt](https://komarev.com/ghpvc/?username=mawtisx&style=plastic&color=fffe9dlabel=⸝⸝)
+![image alt](https://komarev.com/ghpvc/?username=mawtisx&style=plastic&color=fffe9d.label=⸝⸝)
  ⠀ ⠀ ⠀
 
  
