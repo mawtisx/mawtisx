@@ -1,11 +1,11 @@
 
  ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
-    ㅤㅤ<p align="center">
+ ⠀⠀ ⠀    ㅤㅤ<p align="center">
   <a href="https://www.instagram.com/hongahy/">
     <img src="https://img.shields.io/badge/IG-e63946?style=for-the-badge&labelColor=ffffff&color=ffffff" alt="IG">
   </a>
   <a href="https://www.tiktok.com/@__.8thg6">
-    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=fffe9d&color=fffe9d&logoColor=fffe9d" alt="TT">
+    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=ff58a0&color=ff58a0&logoColor=ff58a0" alt="TT">
   </a> 
   <a href="https://www.facebook.com/ehanhiu/?locale=vi_VN">
     <img src="https://img.shields.io/badge/FB-715b6e?style=for-the-badge&labelColor=715b6e&color=715b6e&logoColor=715b6e" alt="FB">
