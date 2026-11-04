@@ -16,4 +16,5 @@
 ⠀⠀  ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ㅤ![image alt](https://i.pinimg.com/originals/84/cd/44/84cd442222b4461fc067db586cf47524.gif)
 
 
- ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀⠀ ⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D47B7B&width=435&lines=Dragneel)](https://git.io/typing-svg)
+ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀
+ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀⠀ ⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D47B7B&width=435&lines=Dragneel)](https://git.io/typing-svg)
