@@ -5,7 +5,7 @@
     <img src="https://img.shields.io/badge/IG-e63946?style=for-the-badge&labelColor=ffffff&color=ffffff" alt="IG">
   </a>
   <a href="https://www.tiktok.com/@__.8thg6">
-    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=e083ab&color=e083ab&logoColor=e083ab" alt="TT">
+    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=d392b7&color=d392b7&logoColor=d392b7" alt="TT">
   </a> 
   <a href="https://www.facebook.com/ehanhiu/?locale=vi_VN">
     <img src="https://img.shields.io/badge/FB-715b6e?style=for-the-badge&labelColor=715b6e&color=715b6e&logoColor=715b6e" alt="FB">
